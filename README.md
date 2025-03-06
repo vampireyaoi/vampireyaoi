@@ -1,8 +1,8 @@
 <div align="center">
  
- ![](https://komarev.com/ghpvc/?username=dpdfreak&abbreviated=true&label=STALKERS&color=B63838)
+ ![](https://komarev.com/ghpvc/?username=dpdfreak&abbreviated=true&label=STALKERS&color=31100B)
  
 <picture>
- <img alt=booty src=https://github.com/dpdfreak/dpdfreak/blob/main/output-onlinepngtools%20(1).png>
+ <img alt=booty src=https://i.postimg.cc/ZqMB6KtV/boothill-banner.png>
 </picture>
 </div>
