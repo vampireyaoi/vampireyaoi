@@ -1,7 +1,11 @@
 <div align="center">
  
  ![](https://komarev.com/ghpvc/?username=dpdfreak&label=BULLETS&color=511B1F)
- 
+
+</br>
+
+</br>
+
 <picture>
  <img alt=booty src=https://i.postimg.cc/7YXj6Ps6/boothill.png>
 </picture>
@@ -12,13 +16,11 @@
 
 </br>
 
-◞།| ͜͝ | ͜͝ |།ིྀ  ͝ ⠀ **𓉸** ⠀ ͝  |།ིྀ ͜͝ | ͜͝ |།◟
-
 </br>
 
-❛   ***These days , I think , are so strange .***   
+𓉸    ❛   ***These days , I think , are so strange .***       
 
-​      ***No cuts , no trust , name no names ..***   ❜
+​          ***No cuts , no trust , name no names ..***   ❜    ᛝ
 
 </br>
 
