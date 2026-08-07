@@ -30,4 +30,14 @@
  <img alt=booty src=https://i.postimg.cc/N0rgm2Sb/boothill.png>
 </picture>
 
+</br>
+
+</br>
+
+<picture>
+<img src=https://files.catbox.moe/zaemoc.png>
+</picture>
+
+***Thank you , [@ponytown-nominations](https://github.com/ponytown-nominations) !***
+
 </div>
