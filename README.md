@@ -34,9 +34,9 @@
 
 </br>
 
-<picture>
-<img src=https://files.catbox.moe/zaemoc.png>
-</picture>
+</br>
+
+</br>
 
 ***Thank you , [@ponytown-nominations](https://github.com/ponytown-nominations) !***
 
