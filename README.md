@@ -38,6 +38,8 @@
 
 </br>
 
-***Thank you , [@ponytown-nominations](https://github.com/ponytown-nominations) !***
+👑 Titles 👑
+
+[PonyTown-Nominations](https://github.com/ponytown-nominations) — Pony Town's Sunday 🪽
 
 </div>
