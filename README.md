@@ -42,6 +42,6 @@
 
 [PonyTown-Nominations](https://github.com/ponytown-nominations) — Pony Town's Sunday 🪽
 
-[PonyTown-Yumes](https://github.com/ponytown-yumes) — THE Boothill Yume 👢❤️‍🔥
+[PonyTown-Yumes](https://github.com/ponytown-yumes) — Pony Town's Boothill Yume 👢❤️‍🔥
 
 </div>
